@@ -11,7 +11,7 @@ Walter Moers
 Bartleby the Scrivener  
 Die Mumins  
 Nach Aschenfeld  
-Der König und der Puppenmacher (Wolfgang Jeschke)  
+Der König und der Puppenmacher (Hörspiel und Buch von Wolfgang Jeschke)  
 Parzival (Übersetzung von Dieter Kühn)  
 Ich Wolkenstein (Dieter Kühn)  
 ## Spiele
