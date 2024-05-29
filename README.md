@@ -18,6 +18,7 @@ Nach Aschenfeld
 Der König und der Puppenmacher (Hörspiel und Buch von Wolfgang Jeschke)  
 Parzival (Übersetzung von Dieter Kühn)  
 Ich Wolkenstein (Dieter Kühn)  
+Die Strudlhofstiege (Heimito von Doderer)  
 ## Spiele
 Dungeons and Dragons  
 ## Geschichte
@@ -68,6 +69,8 @@ Obertongesang
 Theremin  
 Mantren  
 Alte Musik  
+Thomas Tallis  
+Gesualdo  
 Johann Sebastian Bach  
 Richard Wagner  
 ## Physik
