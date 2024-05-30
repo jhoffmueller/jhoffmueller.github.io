@@ -29,6 +29,7 @@ Geschichten aus der Geschichte (Podcast)
 ### Filme
 Brazil  
 LOTR  
+Miss Peregrine's Home for Peculiar Children (Tim Burton)  
 
 ### Serien
 Kottan ermittelt  
@@ -37,6 +38,11 @@ Jeeves and Wooster
 Good Omens  
 [Grasshopper Island](https://www.youtube.com/playlist?list=PL3BdSW4T2E1ao5caXVAT5u9tK3OuaONO2)  
 [Grasshopper Island auf Amazon Prime](https://www.amazon.de/Die-Grash%C3%BCpferinsel/dp/B01GSS32MA/ref=tmm_aiv_title_0?_encoding=UTF8&qid=&sr=)  
+Disenchantment  
+Rick and Morty  
+Fawlty Towers  
+Twin Peaks  
+
 ### Personen
 Herbert Achternbusch  
 Stan Laurel und Oliver Hardy  
