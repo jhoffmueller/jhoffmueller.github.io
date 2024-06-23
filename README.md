@@ -72,15 +72,20 @@ HASCS II
 
 ## Musik
 Obertongesang  
+David Hykes ‎– Hearing Solar Winds  
 Theremin  
+Somewhere over the Rainbow - Israel "IZ" Kamakawiwoʻole  
 Mantren  
 Alte Musik  
 Thomas Tallis  
 Gesualdo  
 Johann Sebastian Bach  
 Richard Wagner  
+Look Mum No Computer  
+[Maru](https://youtu.be/16oaGSltUPE?si=zgz1U86gwo7TU9XN)  
 ## Physik
 Teslatrafo (musical)  
 
 ## Comedy
 Title of the Song (Da Vinci’s Notebook)  
+Coldmirror  
