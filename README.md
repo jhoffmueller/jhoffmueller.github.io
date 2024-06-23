@@ -80,6 +80,7 @@ Alte Musik
 Thomas Tallis  
 Gesualdo  
 Johann Sebastian Bach  
+Johann Sebastian Bach: Concertos For Oboe & Oboe D'Amore  
 Richard Wagner  
 Look Mum No Computer  
 [Maru](https://youtu.be/16oaGSltUPE?si=zgz1U86gwo7TU9XN)  
